@@ -1,0 +1,8 @@
+- ^_^ @MDanishAmin here
+- 📍 Earth
+- 🔍 Seeking knowledge since August 1996 until 💚 _/_ /‾‾ ~ ――――
+- 🌊 "A ripple in time’s ocean, 40 waves deep."
+- 🤖 "HumanOS v1.0 | ⚡ Power source 🥙 🍗 🍟 🥤
+- ❌ 404: Motivation.dll not found. Running on caffeine and memes
+- 📡 "Broadcasting on all frequencies, receiving mostly static."
+- 🚀 Let’s Connect! → 🔗 linkedin.com/in/muhammaddanishamin
